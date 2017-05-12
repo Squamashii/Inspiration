@@ -1,5 +1,5 @@
 # Inspiration
-This is a file where I will write down things that inspire or motivate me, things that make me smile, or things I just think are pure awesomeness
+This is a file where I will write down things that inspire or motivate me, things that make me smile, or things I just think are pure awesomeness. (Edit>>) This is actually going to be a huge work in progress, if I ever take the time to make this into something useful for myself.
 
 Ok, First off, I am going to make a short list of things that make me smile:
 1. Emma. She is my girlfriend, and I love her voice. I get accused of smiling all the time when I'm around her.
