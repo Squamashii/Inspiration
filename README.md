@@ -8,6 +8,7 @@ Ok, First off, I am going to make a short list of things that make me smile:
 3. When little nieces and nephews come up and give me a hug out of nowhere. Actually, little kids do a lot that makes me smile. But I like it best when they are happy.
 
 Where do I want to be in the year 2030?
+  - I hope to be graduating from the Animation and Game Design program at UVU in the year 2030. That means I will be 30 years old! gaah!
 
 Random list of motivations:
 1. I am self-motivated to succeed.
