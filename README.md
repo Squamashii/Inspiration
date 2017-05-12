@@ -7,6 +7,8 @@ Ok, First off, I am going to make a short list of things that make me smile:
   Tiger can recognize my voice, and he comes to the edge of his cage to see me when he hears me.
 3. When little nieces and nephews come up and give me a hug out of nowhere. Actually, little kids do a lot that makes me smile. But I like it best when they are happy.
 
+Where do I want to be in the year 2030?
+
 Random list of motivations:
 1. I am self-motivated to succeed.
 2. I live a little bit in the future, and am trying to stay in the present.
