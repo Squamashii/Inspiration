@@ -5,7 +5,7 @@ Ok, First off, I am going to make a short list of things that make me smile:
 1. Emma.
 2. My bird. I have a lovebird named Tiger.
   Tiger can recognize my voice, and he comes to the edge of his cage to see me when he hears me.
-3. When little nieces and nephews come up and give me a hug out of nowhere.
+3. When little nieces and nephews come up and give me a hug out of nowhere. Actually, little kids do a lot that makes me smile. But I like it best when they are happy.
 
 Pure Awesomeness list:
 1. Mangoes
