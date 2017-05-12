@@ -11,6 +11,7 @@ Where do I want to be in the year 2030?
   - I hope to be graduating from the Animation and Game Design program at UVU in the year 2030. That means I will be 30 years old! gaah!
   - I would like to have 5 to 10 properties under contract with the real estate traniing I have been going through. 
   - My main goal along the lines of "what do I want to do with my life" is to be financially independent by the time I'm 30.
+      Meaning: I will have a sustainable passive income that can support my lifestyle year-round, and give me the flexibiility to work on my other personal projects and inventions.
 
 Random list of motivations:
 1. I am self-motivated to succeed.
