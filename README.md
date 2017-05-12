@@ -7,6 +7,11 @@ Ok, First off, I am going to make a short list of things that make me smile:
   Tiger can recognize my voice, and he comes to the edge of his cage to see me when he hears me.
 3. When little nieces and nephews come up and give me a hug out of nowhere. Actually, little kids do a lot that makes me smile. But I like it best when they are happy.
 
+Random list of motivations:
+1. I am self-motivated to succeed.
+2. I live a little bit in the future, and am trying to stay in the present.
+
+
 Pure Awesomeness list:
 1. Mangoes
 2. 
