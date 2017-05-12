@@ -9,6 +9,7 @@ Ok, First off, I am going to make a short list of things that make me smile:
 
 Where do I want to be in the year 2030?
   - I hope to be graduating from the Animation and Game Design program at UVU in the year 2030. That means I will be 30 years old! gaah!
+  - I would like to have 5 to 10 properties under contract with the real estate traniing I have been going through. 
 
 Random list of motivations:
 1. I am self-motivated to succeed.
