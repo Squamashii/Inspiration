@@ -30,3 +30,4 @@ Pure Awesomeness list:
 
 Places I would like to visit:
 DreamWorks Animation Studios in Burbank
+  When I went out there for my graduation I contacted a couple of my mentors that work at the studio in Burbank, and they said that with enough notice, they could get me in for a tour next time I'm in town!
