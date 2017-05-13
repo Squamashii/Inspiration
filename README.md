@@ -7,11 +7,12 @@ Ok, First off, I am going to make a short list of things that make me smile:
   Tiger can recognize my voice, and he comes to the edge of his cage to see me when he hears me.
 3. When little nieces and nephews come up and give me a hug out of nowhere. Actually, little kids do a lot that makes me smile. But I like it best when they are happy.
 
-Where do I want to be in the year 2030?
-  - I hope to be graduating from the Animation and Game Design program at UVU in the year 2030. That means I will be 30 years old! gaah!
+Where do I want to be in the year 2020?
+  - I hope to be graduating from the Animation and Game Design program at UVU in the year 2020. That means I will be 30 years old! gaah!
   - I would like to have 5 to 10 properties under contract with the real estate traniing I have been going through. 
   - My main goal along the lines of "what do I want to do with my life" is to be financially independent by the time I'm 30.
       Meaning: I will have a sustainable passive income that can support my lifestyle year-round, and give me the flexibility to work on my other personal projects and inventions. I have actually had this goal since I was about 15. I want to work in the animation and game industry but not have the stress that comes along with having an artistic job. If I'm not worried about paying the bills, then my creative mind can just soar.
+      - I will be 30 in the year 2020, and I thought I would have started a family by then.. but seeing how I'm not married at the present time, this is only a dream.
 
 Random list of motivations:
 1. Ever since I was a kid, I have had a drive inside me that keeps me going. But when I get down, and the enthousiasm wanes, I sometimes need to remind myself why I keep going. One of those being that I know every project comes to an end, and I get the most satisfaction from a completed project, even if it isn't perfect.
