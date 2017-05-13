@@ -33,3 +33,5 @@ DreamWorks Animation Studios in Burbank California.
   When I went out there for my graduation I contacted a couple of my mentors that work at the studio in Burbank, and they said that with enough notice, they could get me in for a tour next time I'm in town!
 Hawaii - I now have a previous boss, a business partner, and some ex-in-laws that are all moved out to Hawaii. I need to get out there!
 Paris - I speak French and lived in France for two years, but I never visited Paris. What am I doing with my life?
+
+Next goal on my list though is to learn this information in this class so I can start making my own games! I have too many ideas, and I can't sit around waiting on other people anymore. At least if I knew how it worked, I could lead teams.
