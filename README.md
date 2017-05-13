@@ -1,4 +1,4 @@
-# Inspiration
+# My Inspiration
 This is a file where I will write down things that inspire or motivate me, things that make me smile, or things I just think are pure awesomeness. (Edit>>) This is actually going to be a huge work in progress, if I ever take the time to make this into something useful for myself.
 
 I really can't think of any reason why anyone else would ever want to read this.. but since the project has to be set to public at the current time, I will keep it decent, haha.
@@ -29,7 +29,7 @@ Pure Awesomeness list:
 5. Rare Earth magnets
 
 Places I would like to visit:
-DreamWorks Animation Studios in Burbank
+DreamWorks Animation Studios in Burbank California.
   When I went out there for my graduation I contacted a couple of my mentors that work at the studio in Burbank, and they said that with enough notice, they could get me in for a tour next time I'm in town!
 Hawaii - I now have a previous boss, a business partner, and some ex-in-laws that are all moved out to Hawaii. I need to get out there!
 Paris - I speak French and lived in France for two years, but I never visited Paris. What am I doing with my life?
