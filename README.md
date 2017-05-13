@@ -14,12 +14,12 @@ Where do I want to be in the year 2030?
       Meaning: I will have a sustainable passive income that can support my lifestyle year-round, and give me the flexibility to work on my other personal projects and inventions. I have actually had this goal since I was about 15. I want to work in the animation and game industry but not have the stress that comes along with having an artistic job. If I'm not worried about paying the bills, then my creative mind can just soar.
 
 Random list of motivations:
-1. I am self-motivated to succeed.
+1. Ever since I was a kid, I have had a drive inside me that keeps me going. But when I get down, and the enthousiasm wanes, I sometimes need to remind myself why I keep going. One of those being that I know every project comes to an end, and I get the most satisfaction from a completed project, even if it isn't perfect.
 2. I live a little bit in the future, and am trying to stay in the present.
 
 
 Pure Awesomeness list:
-1. Manoes
+1. Mangoes
 2. Wolverine
 3. Pre-1970 VW Beetles
 4. Brothers
