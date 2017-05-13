@@ -26,7 +26,7 @@ Pure Awesomeness list:
 2. Wolverine
 3. Pre-1970 VW Beetles
 4. Brothers
-5. 
+5. Rare Earth magnets
 
 Places I would like to visit:
 DreamWorks Animation Studios in Burbank
